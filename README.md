@@ -1,1 +1,1 @@
-# AI-Day1_GPTs-
+# AI-Day1_GPTsぐちゃぐちゃ素材一覧になります。
